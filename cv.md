@@ -2,9 +2,9 @@
 
 **Design Engineer · UX Engineer**
 
-Cairo, Egypt · Experienced remote professional
-magid.ewilliam@gmail.com · +20 11 2998 1995
-linkedin.com/in/magid-william · github.com/Magid-William
+Cairo, Egypt · Experienced remote professional  
+[magid.ewilliam@gmail.com](mailto:magid.ewilliam@gmail.com) · [+20 11 2998 1995](tel:+201129981995)  
+[linkedin.com/in/magid-william](https://linkedin.com/in/magid-william) · [github.com/Magid-William](https://github.com/Magid-William)  
 
 ## Summary
 
