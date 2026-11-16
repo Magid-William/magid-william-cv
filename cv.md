@@ -1,6 +1,6 @@
 # Magid William
 
-**Frontend engineer**
+**Frontend Engineer | Design Engineer | UX Engineer**
 
 Cairo, Egypt · Experienced remote professional  
 [magid.ewilliam@gmail.com](mailto:magid.ewilliam@gmail.com) · [+20 11 2998 1995](tel:+201129981995)  
